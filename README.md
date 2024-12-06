@@ -1,2 +1,2 @@
 # Angel 
-to become Software Engineer
+PWD THRIVE: A Mobile Solution for Jobs and Community Engagement in Batangas city
