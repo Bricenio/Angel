@@ -1,2 +1,2 @@
-# Angel 
-Candy Crush
+# Favorite Subject 
+Graphic design by Sir Naj
