@@ -1,2 +1,2 @@
-# Favorite Subject 
-Graphic design by Sir Naj
+# Favorite Picture 
+Graduation photo with my Mom
