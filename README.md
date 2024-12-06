@@ -1,2 +1,2 @@
 # Angel 
- a working student
+BS IT 3.1C
